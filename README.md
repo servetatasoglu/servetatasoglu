@@ -1,5 +1,5 @@
 # 💫 About Me:
-Ardahan Üniversitesin  <br><br>
+Ardahan Üniversitesi  <br><br>
 
 
 ## 🌐 Socials:
