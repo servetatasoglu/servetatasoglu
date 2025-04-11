@@ -1,5 +1,5 @@
 # 💫 About Me:
-Ardahan Üniversitesin Bilgisayar Programcılğı Okuyorum <br><br>
+Ardahan Üniversitesin  <br><br>
 
 
 ## 🌐 Socials:
